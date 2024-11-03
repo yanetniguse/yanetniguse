@@ -7,4 +7,5 @@
 - **Portfolio:** [yanet-niguse-tesfay.vercel.app](https://yanet-niguse-tesfay.vercel.app)  
 - **Blog:** [yanetnigusetesfay.blogspot.com](https://yanetnigusetesfay.blogspot.com/)  
 - **LinkedIn:** [linkedin.com/in/yanetniguse7](https://www.linkedin.com/in/yanetniguse7)
+  
 💡 **Pronouns:** She/Her  
